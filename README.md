@@ -410,5 +410,8 @@ http://t.cn/A6y5bULN
 
 ## 佛山妈妈
 
-http://t.cn/A6yV9yVz
+原微博：http://t.cn/A6yV9yVz
+
+原微博配图[存档](佛山妈妈/)
+
 
