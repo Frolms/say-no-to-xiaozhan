@@ -329,7 +329,40 @@ yhsq录屏http://t.cn/A62uy4nu
 
 ## 商务影视
 
-http://t.cn/A6LOctvq
+原微博：http://t.cn/A6LOctvq
+
+```
+#227历史时刻[超话]##抵制失格偶像肖战# [怒]#抵制肖战综艺影视# 
+【土豆的疯狂挣扎已经开始，如果不团结一致立刻行动，就等着他复活吧】
+📣 新增紧急任务
+    人民mingyi的公yihttp://t.cn/A6yvVd5i
+
+📣 每天带tag发微博刷词条，相当有用且简单
+（多带[怒]这个表情！多表达你的愤怒和厌恶）
+【教程在此】http://t.cn/A6LJq4hw
+【另附投票法】http://t.cn/A6LOjs2V
+
+📣 如果土豆又上热搜了怎么办
+【教程在此】http://t.cn/A6LOGk2U
+
+📣 商务
+【直通车汇总】http://t.cn/A6LJq4hw
+1.潘多拉：据说在谈，直播称抵制方为黑粉
+抵制途径：http://t.cn/A6LJq4hw
+2.雅诗兰黛
+抵制途径：http://t.cn/A6Ac4zpZ
+3.蒙牛：点直通车http://t.cn/A6LsnuE4
+
+📣 影视
+1.狼http://t.cn/A6Ac4zpZ
+2.余生http://t.cn/A6ZrcPmG
+http://t.cn/A6wVxwf8
+（这位博主的第一条评论楼中楼里有途径和链接还有模板，直接点进链接就能留言抵制）
+3.青柚：有消息称他的部分还没有剪掉，视情况而定后期可能会放出
+【教程在此】http://t.cn/A62zUiyc
+4.所有广电模板http://t.cn/A6AU9Q3r
+（有狼余生斗罗还有一些其他的，最后有电话和邮箱，以及寄信地址）
+```
 
 ## 十问系列
 
