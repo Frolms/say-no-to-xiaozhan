@@ -307,7 +307,9 @@ yhsq录屏http://t.cn/A62uy4nu
 
 ## 铺广场用
 
-http://t.cn/A6L1K8YP
+原微博：http://t.cn/A6L1K8YP
+
+原微博配图[存档](铺广场用/)
 
 ## 直通车
 
