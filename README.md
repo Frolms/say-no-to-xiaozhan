@@ -216,7 +216,18 @@ cr：@美容纯棉纸尿布
 
 ## Lofter证据
 
-http://t.cn/A6yV9yVw
+原微博：http://t.cn/A6yV9yVw
+
+原微博配图[存档](Lofter证据)
+
+```
+lofter汇总
+yhsq录屏http://t.cn/A62uy4nu
+煽动他人自杀，发尸体图片http://t.cn/A623n1H1
+在lof上反黑，拉黑他人http://t.cn/A6LGTRhY
+发鬼图http://t.cn/A621RMXA
+投诉名单http://t.cn/A6LNziFH 
+```
 
 ## 我为什么讨厌肖战？（可以给路人看）
 
