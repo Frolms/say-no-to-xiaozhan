@@ -366,7 +366,47 @@ http://t.cn/A6wVxwf8
 
 ## 十问系列
 
-http://t.cn/A6yVbOVD
+原微博：http://t.cn/A6yVbOVD
+
+```
+肖战粉丝十问合集（持续更新，欢迎补充）
+1.十问检察日报 
+http://t.cn/A6AKqcb1
+七问吴一兴
+ http://t.cn/A6wKjXwp 
+2，十问光明日报
+http://t.cn/A6AKqjgR 
+3，十一问文化月刊
+http://t.cn/A6AK5hqT 
+4，十问南方日报
+http://t.cn/A6AoD3sR 
+5，媒体失格 
+http://t.cn/A6AK5TYK 
+6，十问江西卫视
+http://t.cn/A6Acf8IW 
+7，十问凤凰网
+http://t.cn/A67mbC1b 
+8，五问南方日报
+http://t.cn/A6AptvOk 
+9，三问历史研究院
+http://t.cn/A6ARMrO3 
+10，十问观察者网
+http://t.cn/A6AgPxT8 
+11，三问厦门校园
+http://t.cn/A6Aehc9V 
+12，五问厦门校园前主编
+http://t.cn/A6AkQPjx 
+13，十问解放军报
+http://t.cn/A62wU6W8 
+14，融雪锐评：钧正平是无良媒体
+http://t.cn/A62MCcfE 
+15，十问程青松《青年电影手册》
+http://t.cn/A6LkgYPE 
+16，十问金扫帚
+http://t.cn/A6yPdq3R
+17，十问易律师
+http://t.cn/A6y5bULN
+```
 
 ## 佛山妈妈
 
