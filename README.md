@@ -134,7 +134,85 @@ p3是《经济学人》2020年7月4日的内容节选，翻译在p4，建议看�
 
 ## 猥琐语录
 
-http://t.cn/A6yV9yVA
+原微博：http://t.cn/A6yV9yVA
+
+第一部分
+```
+cr：@june-can 
+01.一个证明：http://t.cn/Ai1LyoPg（录屏）http://t.cn/Ai1iz4r5（原博）
+02.肖黑丝http://t.cn/Ai1Lyohw（录屏）http://t.cn/AiHFvFdK（原博）
+03.探索女性的奥秘http://t.cn/Ai1LyohP（录屏）http://t.cn/AiRg2wDb（原博）
+04.x你妈 八卦不你，xhttp://t.cn/Ai1LyohL（录屏）http://t.cn/Ai3aSTKc（原文）
+05.胖子你好xx贱http://t.cn/Ai1Lyoh7（录屏）http://t.cn/AiHsIZOO（原博）
+06.形容女性为猎物http://t.cn/Ai1LyoPD（录屏）http://t.cn/Ai8dKRHU（原博）
+07.活塞运动http://t.cn/Ai1Lyoh8（录屏）原博已删
+08.一个证明http://t.cn/Ai1Lyoh2（录屏）http://t.cn/AieBApbX（原博）
+09.关于印度黑女http://t.cn/Ai1LyoPs（录屏）http://t.cn/AieB2Ntx（原博）
+10.关于老婆http://t.cn/Ai1Lyohz（录屏）http://t.cn/Ai1oDuMR（原博）
+11.关于奶http://t.cn/A6zooufF（录屏）http://t.cn/AieulZwp（原博）
+12.别处转，关于开吸http://t.cn/Ai1Lyohv（录屏）原博已删
+13.芽儿http://t.cn/AiesPesU（录屏）http://t.cn/AieB47nq（原博）
+14.妹子http://t.cn/AiesPesJ（录屏）http://t.cn/AidisGmb（原博）
+15.人渣http://t.cn/AiesPesq（录屏）原博已删
+16.屎，人渣http://t.cn/AiesPesy（录屏）原博已删
+17.基情http://t.cn/AiesPesy（录屏）http://t.cn/Ai3X4GpE（原博）
+18.关于避孕套http://t.cn/AiesPDhC（录屏）原博已删
+19.裸照http://t.cn/A6PThzLe（录屏）原博已删
+20.别处转，绝逼充气娃娃了http://t.cn/A6PQtn5v（录屏）原博已删
+21.操了哟http://t.cn/A6hwdP6F（录屏）http://t.cn/AieVIWRg（原博）
+22.别处转肖妞、小受、赤裸裸http://t.cn/A672gLHm（录屏）原博主已注销
+23.像鸭子叫样http://t.cn/A67U8rXY（录屏）[/cp]
+```
+
+第二部分
+```
+cr：@美容纯棉纸尿布 
+🌿 全集：http://t.cn/Ai3zGrMe 
+🌿 域名录屏：http://t.cn/Ai3P2b6k
+🌿 域名录屏2：http://t.cn/Ai3P2Wxp
+关于这个域名：http://t.cn/Aim1xBqy
+🌿 biyuntao录屏：http://t.cn/Ai3DfUAQ
+🌿 母狗活塞录屏：http://t.cn/Ai3DfUAR
+🌿 “八卦不你“：http://t.cn/Ai3uKUy3
+🌿 你的新猎物？：http://t.cn/Ai3DfUA8
+🌿 开吸！:http://t.cn/Ai3DaON2
+🌿 比较典型的三个猥琐录屏：http://t.cn/AimBJjrc
+🌿 胖子贱：http://t.cn/Aim1paUJ
+🌿 充气娃娃：http://t.cn/AiEK3jBS
+🌿探索奥秘：http://t.cn/Ai3DiVsk
+🌿 自由心证：http://t.cn/Ai3Daesc
+```
+
+第三部分
+```
+探索宝藏男孩肖战㊙️🚯不全
+持更⚠️录屏-原博-动图-截图：
+01.@ 肖先Daytoy 与@ X玖少年团肖战DAYTOY 关系http://t.cn/Ai3D2cPd ​​​[吃瓜]原博：http://t.cn/Ai1iz4r5
+02.@ 肖肖Daytoy 与@ X玖少年团肖战DAYTOY关系http://t.cn/Ai3D57la ​​​[吃瓜]原博：http://t.cn/AieBApbX
+03.“感谢大波同学陪我来探索女性的奥秘”http://t.cn/Ai3DL6ug [吃瓜]原博：http://t.cn/AiRg2wDb
+04.“cao你妈 八卦不你。艹” http://t.cn/Ai3DyOeF ​​​[吃瓜]原博：http://t.cn/Ai3aSTKc
+05.“胖子你好jb贱”http://t.cn/Ai3DylPW [吃瓜] 原博：http://t.cn/AiHsIZOO
+06.“芽儿 又怎么了？”http://t.cn/Aidc6SEq ​​​[吃瓜]原博：http://t.cn/AieB47nq
+07.“人渣” http://t.cn/Aid6xe1Q [吃瓜]原博：http://t.cn/AidXxyHb
+08.“（我是一盘凉皮）你是一坨屎，人渣” http://t.cn/Aid6JZni ​​​[吃瓜]原博：http://t.cn/Aid6faoA
+09.“（你可以为爱做多久?1分30秒的短片让亿万人落泪。#泰语视频）像鸭子叫样。。。” http://t.cn/A67U8oKi ​​​[吃瓜]原博：
+10.“天雷滚滚！！！s居然找个印度黑女（谈莉娜）来演，，，”http://t.cn/Ai3DVmu4 ​​​[吃瓜]原博：http://t.cn/AieB2Ntx
+11.“（小哥儿。。吃啥奶粉长大的？？？？ ​​​）你们懂的”http://t.cn/Ai3DahDU ​​​ [吃瓜]原博：http://t.cn/AieulZwp
+12.“第一张绝b充气娃娃了”
+13.“（家里的小狗居然抱着豆丁做活塞运动，我列个去）你也去” http://t.cn/Ai3DU01l [吃瓜] ​​​原博：已删
+14.“反正怎么都是男人的错！这草逼的世界！”​​​​ http://t.cn/Ai1zzxJB ​​​[吃瓜]原博：http://t.cn/AieBUzLn
+15.“我们都懂你新猎物？”http://t.cn/Ai3DUbrB [吃瓜]原博：http://t.cn/Ai8dKRHU
+16.“老婆你老母/好想你bingbing，好怕你奥斯卡走不回来了。” http://t.cn/Ai3DxDlI ​​​[吃瓜]原博：http://t.cn/Ai1oDuMR
+17.“（我真的就这么起来了 ,. 好撒 肖站）好撒，我爱你撒，孜孜靠边站撒！！！！！” http://t.cn/Ai1iWPXI ​​​[吃瓜]原博：http://t.cn/Ai1iY9PR
+18.“（妹子  估计有活接了）好撒” http://t.cn/AidiFRRG ​​​[吃瓜]原博：http://t.cn/AidisGmb
+19.“我对不起你，我把地上的花瓣看成了…。哈哈哈（byt？哪有这么多…）” http://t.cn/Aie1pK8u ​​​[吃瓜]原博：http://t.cn/Ai3mhes6
+20.“我们一起基情吧”  http://t.cn/AidXONqn ​​​[吃瓜]原博：http://t.cn/Ai3X4GpE
+21.“我的大宝贝儿肖黑丝”http://t.cn/Ai3DL4Wb ​​​[吃瓜]原博：http://t.cn/AiHFvFdK
+22.​“肖哥哥，求私下给我拍张果的，你懂的” http://t.cn/A6PTIEPW ​​​[吃瓜]原博：http://t.cn/A6PTPkN2
+23.“陈浩林。。。。cao了哟！！！！” http://t.cn/A6hwrYgN ​​​[吃瓜]原博：http://t.cn/AieVIWRg
+24.“肖妞/小受/赤裸裸勾引” http://t.cn/A672du7V ​​​[吃瓜] 原博：已注销
+鸣谢@june-can @凑齐七个风车可以召唤龙珠
+```
 
 ## Lofter证据
 
