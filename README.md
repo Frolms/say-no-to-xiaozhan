@@ -88,7 +88,14 @@ http://t.cn/A6yzmw6S 余生（再也不相见）预告片中的错误。
 
 http://t.cn/A6yv4Gaf 各种发声、投诉、维权渠道。
 
+## 模版
 
+1.肖战给社会带来的恶劣影响 http://t.cn/A6yVoqfi
 
+2.狙影视作品可能有用 http://t.cn/A6yAZzuU
 
-负面微博内容生成器：[链接](http://v3.xiaozhan.black/)
+3.注意图12、13 http://t.cn/A6ywZD5W
+
+4.打电话可能有用 http://t.cn/A6yv4Gaf
+
+**5.负面语句生成器** http://v3.xiaozhan.black/
