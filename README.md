@@ -6,7 +6,7 @@
 
 原微博：http://t.cn/A6yttWvX
 
-原微博配图存档
+原微博配图[存档](作业/文旅)
 
 文旅网站： https://www.mct.gov.cn/whbphone/
 
